@@ -1,3 +1,3 @@
 # Discussion
 
-Technology forums are very important. (PS. Personal Opinion)
+Technology forums are vital for collaborative problem solving.
