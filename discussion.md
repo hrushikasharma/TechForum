@@ -1,3 +1,3 @@
 # Discussion
 
-Technology forms are vital for collaborative problem solving.
+Technology forums are vital for collaborative problem solving.
